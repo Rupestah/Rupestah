@@ -1,0 +1,12 @@
+- 👋 Hi, I’m @Rupestah and I'm 65
+- 👀 I’m interested in learning more about Linux, because..why not!?
+- 🌱 I’m currently learning basic commands on a separated standalone Laptop
+- 💞️ I’m looking to collaborate on nothing at the moment!
+- 📫 How to reach me ....not necessary!
+- I basically like to fiddle with different operate systems to see what the actual difference is!
+- Only because there are now so moany choices, we arent cornered into using crappy windozzzze...or lame IOS, I did use
+- Elemetary OS for a while, but I need to learn more, so now I have switched up to Kali...
+- I say "any good advice" is always welcome, but, the clue is on that singular word!! GOOD ....dont just chops off with
+- things like, OMG why are you doing this, or what do you need this for....I dont need it, I just want to learn it...
+<----------------------------------------------------------------------------------------------------------------------->
+- So to summarise, if you have any GOOD advice, feel free to share, if, however (like so many interweb preachers) your advice is unfounded, unrequired, uneccessary or indeed unwanted, then please, please, please keep it to yourself. Thanks!!!!
